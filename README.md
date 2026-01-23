@@ -1,3 +1,4 @@
+![Profile banner](https://www.canva.com/design/DAG_JFgXgg8/glVtxFrQlXYqg7eKIw08dw/edit?utm_content=DAG_JFgXgg8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 # 💫 About Me:
 🔭 I’m currently working on Bachelore's Degree<br>👯 I’m looking to collaborate on Creating my Business<br>🤝 I’m looking for help with starting my business<br>🌱 I’m currently learning IT Skills in 21 Century<br>💬 Ask me about Calculus<br>⚡ Fun fact still alive
 
